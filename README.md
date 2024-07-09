@@ -1,0 +1,2 @@
+# personal-prtfolio-web-site-only-HTML-V.0.1
+PATİKA DEVDEN ÖĞRENDİĞİM BİGİLER İLE KENDİ ÇAPIMDA BİR PORTFOLİO WEB SİTESİ YAPMAYA ÇALIŞTIM
